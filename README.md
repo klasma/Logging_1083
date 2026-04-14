@@ -1,0 +1,1 @@
+# Sölvesborgs kommun
